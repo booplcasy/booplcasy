@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Booplcasy
+- 👋 Hi, I’m @booplcasy
 
 
 
